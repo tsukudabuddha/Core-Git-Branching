@@ -23,8 +23,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Andrew met the Unicorn King who granted him magic powers.
-The end.
-JK, the Unicorn King doesn't exist
+Then the Friendly Koala appears... the END
 
 ## Cast
 
